@@ -3,8 +3,14 @@
 Cảnh báo thủ đoạn lừa "chat sex" để cưỡng đoạt tài sản
 (CAO) Các đối tượng nhắn tin vô tình làm quen tâm sự rồi giả bộ nảy sinh tình cảm tự gửi cho bị hại những hình ảnh hở hang clip nhạy cảm
 
-Clip Sạt lở nghiêm trọng tại huyện miền núi An Lão Bình Định
-Mưa lớn những ngày qua đang khiến nhiều nơi tại huyện miền núi An Lão (tỉnh Bình Định) bị sạt lở ngập cục bộ và giao thông bị ách tắc
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
 
 3 điểm gây ngỡ ngàng trong video tóm dính hôn nhau của Gil Lê và Xoài Non
 Khoảnh khắc Gil Lê tình cảm bên Xoài Non đang gây bão trên mạng xã hội
